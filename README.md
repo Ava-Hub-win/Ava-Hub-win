@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Ava-Hub-win
-- 👀 I’m interested in steam
 - 🌱 I’m currently learning UE5
 - 📫 How to reach me 409423998@qq.com
 
